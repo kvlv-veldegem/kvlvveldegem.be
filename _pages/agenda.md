@@ -17,6 +17,10 @@ Wil je meer weten? Lees de [uitleg](/assets/media/escape/Wat-is-Ferm-Escape-8210
 
 **Ben je corona beu? Neem dan deel aan onze Ferm Challenge!** Lees er meer over op deze pagina ([link](/challenges/)).
 
+## Ferm Fresh: koken met de bubbel!
+
+![Flyer](/assets/media/agenda/koken-bubbel.jpg)
+
 ## Open aanbod voor 2021
 
 Helaas moeten we nog even wachten, maar dit hebben jullie nog te goed:
